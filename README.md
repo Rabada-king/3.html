@@ -71,7 +71,7 @@ Furthermore, one early morning view out of the window on a lucky, non-clouded da
 
 The mall is a unique place of scenic beauty and local gathering which is also a noteworthy British contribution.<br>
 
-The mall is lit up with bands playing, shops lined up featuring the local cuisines and attractions, horses offering rides <em>(well, obviously not on their own),</em> and the local communities strewn all over the place, illuminated with their cordial smile and ever approachable behaviour.<br>
+The mall is lit up with bands playing,  lined up featuring the local cuisines and attractions, horses offering rides <em>(well, obviously not on their own),</em> and the local communities strewn all over the place, illuminated with their cordial smile and ever approachable behaviour.<br>
 
 The sunrise at the Tiger Hill is surely one of the best sights one can ever view, and the delight it causes one makes quite up for the early morning toiling one has to go through in order to make in time to grab a spot at the sunrise spot, because this tourist destination is packed all-round the entire year.<br>
 
